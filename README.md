@@ -1,6 +1,6 @@
 # **讨薪之路勿迷茫，人间正道是沧桑** #
 
-----------
+
 
 
 
@@ -65,42 +65,42 @@
 
 - 这是公司HR答复，她也是按照老板的意思直接回复，5月19日承诺下周一5月22日发
 
-![](http://src.dfj95.com/Screenshot_20170718-142105.png?imageView/2/w/519/q/90)
+![](http://src.dfj95.com/Screenshot_20170718-142105.png?imageView/2/w/419/q/90)
 
 
 - 这是公司财务, 她也是按照老板意思回复，6月14日承诺下周一6月19日发
 
-![](http://src.dfj95.com/Screenshot_20170718-143302.png?imageView/2/w/519/q/90)
+![](http://src.dfj95.com/Screenshot_20170718-143302.png?imageView/2/w/419/q/90)
 
 
 - 这是6月20日承诺6月25日发
 
 
-![](http://src.dfj95.com/image/pngScreenshot_20170718-144822.png?imageView/2/w/519/q/90)
+![](http://src.dfj95.com/image/pngScreenshot_20170718-144822.png?imageView/2/w/419/q/90)
 
 
 - 这是6月19日老板自己承诺最晚25日发
 
 
-![](http://src.dfj95.com/image/pngScreenshot_20170718-144902.png?imageView/2/w/519/q/90)
+![](http://src.dfj95.com/image/pngScreenshot_20170718-144902.png?imageView/2/w/419/q/90)
 
 
 - 这是6月25日答复第二天给
 
 
-![](http://src.dfj95.com/Screenshot_20170718-150809.png?imageView/2/w/519/q/90)
+![](http://src.dfj95.com/Screenshot_20170718-150809.png?imageView/2/w/419/q/90)
 
 
 
 - 这是6月30日答复下周一7月3日发
 
 
-![](http://src.dfj95.com/image/png/Screenshot_20170718-151221.png?imageView/2/w/519/q/90)
+![](http://src.dfj95.com/image/png/Screenshot_20170718-151221.png?imageView/2/w/419/q/90)
 
 
 - 这是7月3日答复7月7日发
 
-![](http://src.dfj95.com/image/png/Screenshot_20170718-152837.png?imageView/2/w/519/q/90)
+![](http://src.dfj95.com/image/png/Screenshot_20170718-152837.png?imageView/2/w/419/q/90)
 
 
 ## 微信语音备份 ##
